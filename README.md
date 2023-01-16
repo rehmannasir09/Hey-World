@@ -29,7 +29,7 @@ and all ICT software approved work.
 
 
 - How to reach me
-Twitter: https://www.twitter.com/rehmannasir_
-E-mail: nasir03rehman@gmail.com
+Twitter: https://www.twitter.com/rehmannasir_  , 
+E-mail: nasir03rehman@gmail.com  and   
 Facebook: https://www.facebook.com/almaninasir09
 
